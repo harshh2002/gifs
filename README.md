@@ -1,2 +1,2 @@
 # gifs
-gifs daal deta hoon idhar
+gifs and wallpapers daal deta hoon idhar
